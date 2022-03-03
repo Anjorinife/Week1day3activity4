@@ -11,6 +11,12 @@ Why is this company exemplary in the FinTech space? What are their strengths and
 
 What is the prognosis for this company? Where do they expect to be in the future?
 
+Who are you? What is your background?
 
+
+What are your career goals?
+
+
+Why did you choose FinTech as a career path?
 
 
